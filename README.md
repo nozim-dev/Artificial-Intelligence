@@ -1,2 +1,2 @@
 ﻿# Artificial-Intelligence
-👉👉👉https://artificial-1ntelligence.netlify.app/👈👈👈
+👉👉👉 https://artificial-1ntelligence.netlify.app/ 👈👈👈
